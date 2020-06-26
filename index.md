@@ -11,4 +11,5 @@ Er hatte Kontakt zu vielen ebenfalls bekannten Musikern wie Chopin, Wagner, Schu
 * Consolations
 * Années de pelèrinage
 * Symphonische Dichtung
- 
+
+> Zur Bildung des Künstlers ist vor allem Emporwachsen des Menschen nötig.
